@@ -1,1 +1,1 @@
-# Other-Teaching-Digital-Logics-
+# Other-Teaching-Digital-Logics
